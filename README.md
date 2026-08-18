@@ -2,7 +2,7 @@
 
 # MAULLLL 
 HOLLA TEMAN TEMAN ini adalah laman tujuan saya
-**cloud competing** ✌️ [Github](https://github.com) [one cloud](https://owncloud.com) [Instagram](https://www.instagram.com/maul.e__?igsh=c3QxZHo3bXljMHNh)
+**menjadi siswa ganteng** ✌️ [Github](https://github.com) [one cloud](https://owncloud.com) [Instagram](https://www.instagram.com/maul.e__?igsh=c3QxZHo3bXljMHNh)
 
 
 #maullganteng
